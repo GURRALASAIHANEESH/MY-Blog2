@@ -1,1 +1,1 @@
-https://github.com/GURRALASAIHANEESH/My-Blog
+https://gurralasaihaneesh.github.io/MY-Blog2/
